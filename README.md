@@ -1,2 +1,2 @@
 # alpha
-this is just my first project i hope i get better over time
+i'm klaus am just on been a programmer and its my first time here. any advice really appreciated
